@@ -226,7 +226,7 @@ Lab 2/
 
 
 
-\- \*\*Name:\*\* Jack Solomon
+\- \*\*Name:\*\* Sree Ram Roshan A S
 
 \- \*\*Roll No:\*\* 24BAD113
 
